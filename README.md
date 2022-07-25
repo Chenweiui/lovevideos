@@ -11,4 +11,3 @@
 # 下载：
 <a href="http://t66y.com/index.php/" target="_blank">草榴社区</a>
 <a href="https://sukebei.nyaa.si/" target="_blank">Sukebei</a>
-<a href="http://www.runoob.com/" target="_blank">访问菜鸟教程!</a>
