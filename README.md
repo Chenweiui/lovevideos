@@ -12,5 +12,5 @@ https://www.google.com.hk/
 <a href="http://2547ck.com/">黄色仓库</a>
 <a href="https://weav.xyz/">WeAV</a>
 下载：
-<a href=http://t66y.com/index.php">草榴社区</a>
+<a href="http://t66y.com/index.php">草榴社区</a>
 <a href="https://sukebei.nyaa.si/">Sukebei</a>
