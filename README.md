@@ -20,5 +20,5 @@
 <a href="http://t66y.com/index.php/" target="_blank">草榴社区</a>
 <a href="https://sukebei.nyaa.si/" target="_blank">Sukebei</a>
 
-#### 日本：櫻空桃 明里紬 橋本ありな 桃乃木かな 小宵こなん 三上悠亜
+#### 日本：南相泽 櫻空桃 明里紬 橋本ありな 桃乃木かな 小宵こなん 三上悠亜 
 #### 中国：
