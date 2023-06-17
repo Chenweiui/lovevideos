@@ -4,6 +4,8 @@
 <a href="http://www.jamgoo.com/" target="_blank">爱情岛论坛</a>
 <a href="https://zh.live.missav.com/girls/chinese" target="_blank">live</a>
 <a href="https://missav.com/ja" target="_blank">missav</a>      
+<a href="https://zh.live.missav.com/girls/chinese" target="_blank">missav live</a>      
+<a href="https://missav.com/ja" target="_blank">missav</a>      
 <a href="https://www.mtlover888.cc/" target="_blank">蜜桃情人</a>
 <a href="https://www.pokemod.asia/" target="_blank">宝渴梦</a>
 <a href="https://www.mdrccbig.info/" target="_blank">云盘破解视频</a>
